@@ -1,1 +1,1 @@
-https://deepaman13.github.io/maxfit/.com
+https://deepaman13.github.io/maxfit/
